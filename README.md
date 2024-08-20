@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...gaming , game development
 - 🌱 I’m currently learning ... c#
 - 💞️ I’m looking to collaborate on ... project related designs
-- 📫 How to reach me ... kkarthikeyanu69@gmail.com
+- 📫 How to reach me ... karthikeyanu69@gmail.com
 - 😄 Pronouns: ... 
 - ⚡ Fun fact: ... India is a seeing game has nothing .
 
